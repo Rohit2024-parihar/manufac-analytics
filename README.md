@@ -7,3 +7,6 @@
 
 ### Output
 
+![image](https://github.com/Rohit2024-parihar/manufac-analytics/assets/63337003/57143cdd-7ef8-4fd1-9aa0-22bfe91f7f2c)
+
+
